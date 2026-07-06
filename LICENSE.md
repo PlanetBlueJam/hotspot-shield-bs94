@@ -1,4 +1,4 @@
-
+Enhance your Kaspersky VPN experience with advanced App for Kaspersky VPN - camouflage-mode and free-trial, the #1 app. Includes camouflage-mode and free-trial for a safer and
 
 
 
